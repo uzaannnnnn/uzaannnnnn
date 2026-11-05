@@ -47,8 +47,8 @@ I'm continuously exploring modern technologies, improving my engineering skills,
 ### 🤝 Let's Connect
 
 - GitHub: [@uzaannnnnn](https://github.com/uzaannnnnn)
-- Email: Your Email Address
-- Portfolio: Coming Soon
+- Email: vanz66hu@gmail.com
+- Portfolio: https://muhamadfauzan.eshace.com
 
 ---
 
